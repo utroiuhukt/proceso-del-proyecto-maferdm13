@@ -1,0 +1,6 @@
+ACTIVIDAD ll: Ashley Madison 
+
+Desde mi punto de vista yo pudiera decir que una acción se considera buena o incorrecta dependiendo de la consecuencia que esta te brindará, pero también creo que cada acción depende de un contexto del cual estemos experimentando ya que ninguna situación se asociará a otra y de esto existen diferentes contextos lo cual hace que la consecuencia cambie dependiendo de su contexto también tienen que depender según los valores que cada persona tiene y esos como los relaciona con la sociedad, ya que hay personas que tienen diferentes valores y no les importa la cuestión de las opiniones de las demás personas. 
+En pocas palabras una acción se hace buena o incorrecta dependiendo de su contexto, valores, intenciones y la consecuencia que conllevará.
+Al igual que lo que se acaba de contextualizar el saber quién es responsable de una acción también depende de muchos factores y se parecen mucho ya que también depende de la intención en la que se efectuó una acción además de que también se podría decir que es culpable si esta persona tiene el control de la acción, aunque a veces no es así, también es un punto importante.
+También si fue consiente en su momento de las consecuencias y aún así quiso realizar esto, también lo hace responsable también influyen las circunstancias, el control que tienes ante ello, el impacto y otras cosas más.
